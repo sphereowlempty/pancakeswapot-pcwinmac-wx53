@@ -1,4 +1,4 @@
-# 
+# VIP PancakeSwap bot التداول إعدادات مسبقة for Mac OS | نهائي PancakeSwap bot التداول إعدادات مسبقة for PC Windows. Featuring مجموعات السيولة DEX and تداول العقود المستقبلية — optimized for maximum performance.
 
 
 
